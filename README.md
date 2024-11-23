@@ -5,8 +5,6 @@
 <body>
 
 <a href="https://tinyurl.com/koko1231asd23" title="ResimLink - Resim Yükle"><img src="i.hizliresim.com/fhd29v0.jpeg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
-<a href="https://tinyurl.com/koko1231asd23"> <img src="https://i.hizliresim.com/fhd29v0.jpeg" />
-</a>
 </a>
 
 
