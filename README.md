@@ -1,13 +1,11 @@
 #  <a href="https://tinyurl.com/koko1231asd23">JOJOBET GİRİŞ İÇİN TIKLA</a>
-
 <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
 </head>
 <body>
 
 <a href="https://tinyurl.com/koko1231asd23" title="ResimLink - Resim Yükle"><img src="i.hizliresim.com/fhd29v0.jpeg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
-<a href="https://tinyurl.com/koko1231asd23">
-    <img src="https://i.hizliresim.com/fhd29v0.jpeg" />
+<a href="https://tinyurl.com/koko1231asd23"> <img src="https://i.hizliresim.com/fhd29v0.jpeg" />
 </a>
 </a>
 
